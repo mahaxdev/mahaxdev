@@ -1,1 +1,1 @@
-Coded by MahaDev X (Lord of Beings)
+MahaDev X (Lord of Beings)
